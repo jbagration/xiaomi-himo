@@ -1,1 +1,1 @@
-# xiaomi-himo
+https://jbagration.github.io/xiaomi-himo/
